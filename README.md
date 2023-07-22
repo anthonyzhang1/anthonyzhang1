@@ -1,3 +1,3 @@
 ### My Website: https://anthonyzhang1.github.io/
 
-おはよー
+Let's do our best today too!!
